@@ -12,4 +12,4 @@ stackoverflow.com
 iconfinder.com
 
 Scuze pentru necomentarea codului. -> Bill.jpg
-Dar pentru orice neclaritati puteti sa ma contactati: sebastianoctavian.sas@yahoo.com sau telefon 0748708200
+Dar pentru orice neclaritati puteti sa ma contactati: sebastianoctavian.sas@yahoo.com
